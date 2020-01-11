@@ -1,2 +1,2 @@
-# martinx3sadministrativedevelopment.github.io
-https://martinx3sadministrativedevelopment.github.io/
+# martinx3-administrativedevelopment.github.io
+https://martinx3-administrativedevelopment.github.io/
